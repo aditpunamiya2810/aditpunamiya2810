@@ -1,5 +1,5 @@
 # 💫 About Me:
-AI & Tech Enthusiast | Pokemon Trainer
+AI & Tech Enthusiast
 
 
 ## 🌐 Socials:
